@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Genex36
+- 👀 I’m interested in c# projects, unity and blockchain (crypto & NFT)
